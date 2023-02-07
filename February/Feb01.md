@@ -1,7 +1,7 @@
 ## STAR <BR><BR>
 
 ### SPACE <BR>
- 
+
 
 ### TRACK <BR>
 Prioritize and manage your workload, focus on accuracy and efficiency, and seek help from team members when needed. Collaborate with team members, gather data and information, and practice
